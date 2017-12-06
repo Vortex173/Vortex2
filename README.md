@@ -1,0 +1,2 @@
+# Vortex2
+https://discordapp.com/api/webhooks/388009281955561472/hGHXb84Dm_EOSg_ZbMA0nPxeAvJN3J7uOWaqttSd1KG8mfC4fY_k9PKAcbUUPaQRiThs
